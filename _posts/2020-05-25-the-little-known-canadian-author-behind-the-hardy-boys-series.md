@@ -1,0 +1,16 @@
+---
+title: "The little-known Canadian author behind The Hardy Boys series"
+date: "2020-05-25"
+categories: 
+  - "media"
+---
+
+Tens of thousands of young boys growing up in the 1920s and 1930s got a secret thrill whenever they picked up a new book about The Hardy Boys, those intrepid young lads who solved mysteries and generally lived lives filled with tremendous adventure. The books were written by a man named Franklin W. Dixon. But who was Dixon? How did he come to write The Hardy Boys? And why was his writing so terrible, as those young boys often realized when they grew up and learned more about literature? Gene Weingarten wrote about the real story [in a 1998 piece for The Washington Post](https://www.washingtonpost.com/wp-dyn/content/article/2005/12/05/AR2005120501092_pf.html). As he explains, Franklin Dixon was what the book business called a "house name," or pseudonym, which allowed multiple people to write under one byline. And from 1927 to 1946, the books were written by a Canadian man named Leslie McFarlane -- and he hated The Hardy Boys with a passion.
+
+> It turns out the story of the Hardy Boys isn't about the worst writer who ever lived, not by a long shot. It  is about a good writer who wrote some bad books, and if you wonder why  that happened, as I did, then you are likely not very old and not very  wise. Sometimes homely things are done for the best reasons in the  world, and thus achieve a beauty of their own. Leslie McFarlane kept voluminous diaries. His family has them. He wrote  in fountain pen, in elegant strokes that squirrelled up a little when he  was touched by despair or drink. In these diaries, "The Hardy Boys" is  seldom mentioned by name, as though he cannot bear to speak it aloud. He  calls the books "the juveniles." At the time McFarlane was living in northern Ontario with a wife and infant children, attempting to make a  living as a freelance fiction writer.
+
+McFarlane's diary entries make for sad reading. Nov. 12, 1932: "Not a nickel in the world and nothing in sight. Am simply desperate with anxiety. . . . What's to become of us this winter? I don't know. It looks black." Jan. 23, 1933: "Worked at the juvenile book. The plot is so ridiculous that I am constantly held up trying to work a little logic into it. Even fairy tales should be logical." Jan. 26, 1933: "Whacked away at the accursed book." June 9, 1933: "Tried to get at the juvenile again today but the ghastly job appalls me." Jan. 26, 1934: "Stratemeyer sent along the advance so I was able to pay part of the grocery bill and get a load of dry wood." Finally: "Stratemeyer wants me to do another book. . . . I always said I would never do another of the cursed things but the offer always comes when we need cash. I said I would do it but asked for more than $85, a disgraceful price for 45,000 words."
+
+As Gene Weingarten explains, McFarlane was a 5-foot-4-inch Irishman, who got his start writing for newspapers in places like Cobalt, Ontario and Sudbury, and turned to writing the Hardy Boys books out of desperation after the Great Depression. Afterwards, he was fiction editor of Maclean's magazine for a number of years, and produced a number of acclaimed documentary films, wrote an excellent hockey novel, and TV scripts for "Bonanza" and "The U.S. Steel Hour." He died of complications from diabetes in 1977.
+
+\]\]>
